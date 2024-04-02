@@ -1,0 +1,6 @@
+- Hi, I'm Sheriff Muh'd from northeast of nigeria (maiduguri, Borno state)
+- I am a Front and Back end Web Developer with little experiance in mobile development, database structure and python.
+- I will love to learn team work and a lot more with more developers in reality.
+- I’m looking to collaborate on a remote Project...
+- You can reach me on whatsapp +234 8148604462. Email: muhammadsheriffsms@gmail.com...
+- ⚡ Language Used: HTML, CSS, JAVASCRIPT, PHP, visual basic and python.
